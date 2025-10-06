@@ -1,1 +1,1 @@
-# 0r6y36zgvm
+https://github.com/ntgfl836t0/ntgfl836t0/invitations
